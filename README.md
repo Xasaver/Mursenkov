@@ -1,2 +1,0 @@
-# Serg
-RepSo1
